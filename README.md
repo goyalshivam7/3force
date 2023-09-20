@@ -1,2 +1,5 @@
 # 3force
-ONEPLUS - Manufacturing all types of under garments
+ONEPLUS - Manufacturing all types of undergarments.
+REQUIRED SALESMAN - KHAGARIA, BEGUSARAI, SAHARSHA (BIHAR)
+CONTACT -  9791011921
+PAID JOB
